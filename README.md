@@ -1,7 +1,6 @@
 ### Olá, eu sou o Gustavo! 💻☕
   
-* Tenho 20 anos 
-* Estudo Ciência da Computação na Unisinos
+&nbsp;
 
 ---
 
